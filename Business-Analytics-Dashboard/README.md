@@ -150,12 +150,7 @@ Sahib Chouhan
 Data Analysis • Machine Learning • Visualization
 
 
----
 
-If you want, I can also create:
-✅ A **professional project logo**  
-✅ A **GitHub description**  
-✅ Tags & topics for better discoverability  
 
-Just tell me! ​
+
 
